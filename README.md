@@ -1,5 +1,5 @@
 
-# 👋 Hey, I'm a balu kuda
+# 👋 Hey, I'm  balu kuda
 
 ### 🚀 Forward Deployed Engineer | Software Engineer | AI & Cloud Enthusiast
 
